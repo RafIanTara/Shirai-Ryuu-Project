@@ -1,1 +1,0 @@
-# Shirai-Ryuu-Project
